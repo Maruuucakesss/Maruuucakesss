@@ -1,6 +1,6 @@
 ## Hi there 😸😸😸
 
-I'm Maruuu, a rising Wed Dev that still learn and willing to lear.
+I'm Maruuu, a rising Wed Dev that still learn and willing to learn.
 
 I create everything i can imagine.
 
